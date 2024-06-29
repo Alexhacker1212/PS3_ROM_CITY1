@@ -63,7 +63,7 @@ Credito: Carl Johnson y Alex
 
 Última edición: 24/06/2024
 
-
+[![](https://visitcount.itsvg.in/api?id=Alex2&label=Visitas%20Web&color=6&icon=6&pretty=true)](https://visitcount.itsvg.in)
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
 
